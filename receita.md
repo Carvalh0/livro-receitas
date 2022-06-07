@@ -1,4 +1,0 @@
-# Ovo Frito
-## Ingredientes
-
-
